@@ -108,7 +108,7 @@ Eligible public documents may include educational certificates, birth and marria
 
 No. Apostille is generally applicable when the relevant countries are covered by the Hague Apostille Convention and the receiving country requires it. Other destinations may require normal attestation or another legalisation procedure.
 
-### 3. Can I apply for <a href="https://www.talentattestation.com/apostille-services-in-bangalore.html">apostille in Bangalore if my certificate was issued in another state?
+### 3. Can I apply for <a href="https://www.talentattestation.com/apostille-services-in-bangalore.html">apostille in Bangalore</a> if my certificate was issued in another state?
 
 The correct authentication route generally depends on the document's issuing authority and the applicable state or institutional verification requirements, not simply the applicant's current city. Check the route for the specific certificate before submission.
 
